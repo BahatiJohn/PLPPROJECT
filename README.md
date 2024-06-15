@@ -1,0 +1,1 @@
+Introducing our innovative app designed to empower you to take control of your health and wellness journey. Our app is built to help you understand your Body Mass Index (BMI) and provides personalized insights to achieve your fitness goals.
